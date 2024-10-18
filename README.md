@@ -1,2 +1,2 @@
 # LM
-zaya ne sert à rien
+allez va te faire champouiner le cerveau
