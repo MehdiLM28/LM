@@ -1,11 +1,11 @@
 # LM
 allez va te faire champouiner le cerveau
 c'est çarmljbepoirhjgr
-gr
-grrgdrhgdr
-grrgdrhgdrdrgrd
+MMMMMMMM
+MMMMMMMMm
+MMMMMMMMm
 
-rggdgeg
-dg
-dge
-grrgdrhgdrg
+m
+MMMMMMMMm
+
+m
